@@ -10,4 +10,3 @@
 -amo crianças
 -sou carente
 -amo jogar fry fyrhe
--amo senhoras com +50
