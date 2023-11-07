@@ -1,5 +1,12 @@
 ### Boas vindas ao meu perfil. 
--Sou estudante do ensino médio.
--Me chamo Allan Richard.
--Tenho 15 anos
--
+-Sou um novinho
+-tenho muita experincia na área
+-sou virgem (signo)
+-sou hetero
+-sou pai
+-sou tio
+-sou mãe
+-sou vovô
+-amo crianças
+-sou carente
+-amo jogar fry fyrhe
